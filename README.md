@@ -4,5 +4,5 @@
 - 💞️ I’m looking to collaborate on projects 
 - 🥅 2021 Goals: Contribute more to Open Source Projects and Learn New Tech-Stack.
 - 📫 How to reach me 
-https://www.linkedin.com/in/rittik-kumar-313727194/
-https://www.instagram.com/rkrittik17/
+      Linkedin - https://www.linkedin.com/in/rittik-kumar-313727194/
+      Instagram - https://www.instagram.com/rkrittik17/
